@@ -11,5 +11,5 @@
 
 0000110807961sp@al.educacao.sp.gov.br
 
-![](https://tenor.com/pt-BR/view/gjirlfriend-gif-26095958)
+![](https://tenor.com/pt-BR/view/cool-monkey-gif-4053977429605610046)
 
